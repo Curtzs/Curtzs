@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Curtzs
+- 👀 I’m interested in minecraft
+- 🌱 I’m currently learning nothing
